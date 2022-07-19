@@ -1,1 +1,1 @@
-The OFficial ModVerse Github
+The Official ModVerse Github
